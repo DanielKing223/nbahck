@@ -16,3 +16,4 @@ NBA 2K24 is like a frustratingly talented superstar who falls short of deliverin
 
 Despite being a little short on flashy new mechanics to boast about on the back of the box, NBA 2K24 still looks fantastic and its on-court gameplay is incrementally stronger than ever. Topping the list of additions is the new ProPLAY feature, which allowed 2K to take NBA footage and translate it to in-game animations in real timeIn other words, NBA 2K24 is a lot smoother than its predecessors when it comes to movement on the court, including dribbling, shooting, and pass animations. There are fewer immersion-breaking interactions and things feel generally more authentic.
 
+
