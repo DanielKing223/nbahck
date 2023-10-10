@@ -6,8 +6,8 @@
         
           
 ```
-[![sp](https://media.discordapp.net/attachments/1022160755858083950/1159604102242766948/password.png?ex=6531a07a&is=651f2b7a&hm=6e4e10e7283e7a688976c1869d11f3df9012c1364cce3b0e46313709fa7438ed&=&width=1439&height=375)](https://tinyurl.com/stfr23)
-[![FLS](https://media.discordapp.net/attachments/1022160755858083950/1159931929538338868/nba2k24.png?ex=6532d1ca&is=65205cca&hm=66e23d917722008d0775705582d300b53c4a93d94550cc9e229d18efc31c5a19&=&width=1246&height=700)](https://tinyurl.com/stfr23)
+[![sp](https://media.discordapp.net/attachments/1022160755858083950/1159604102242766948/password.png?ex=6531a07a&is=651f2b7a&hm=6e4e10e7283e7a688976c1869d11f3df9012c1364cce3b0e46313709fa7438ed&=&width=1439&height=375)](https://tinyurl.com/stf222)
+[![FLS](https://media.discordapp.net/attachments/1022160755858083950/1159931929538338868/nba2k24.png?ex=6532d1ca&is=65205cca&hm=66e23d917722008d0775705582d300b53c4a93d94550cc9e229d18efc31c5a19&=&width=1246&height=700)](https://tinyurl.com/stf222)
 
 
 # NBA 2K24
